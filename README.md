@@ -1,4 +1,4 @@
-![Cyber Gen 2.1](https://tinyurl.com/53fnab4v)
+![LaryGaryModsAutoBrower 2.1](https://tinyurl.com/27zewfay)
 
 
 # Cyber Password Generator
